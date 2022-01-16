@@ -1,0 +1,6 @@
+# UAS_PemrogramanMobile
+UAS_PemrogramanMobile
+
+Uploading VID-20220116-WA0044.mp4…
+
+Uploading VID-20220116-WA0043.mp4…
